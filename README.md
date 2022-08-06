@@ -4,3 +4,7 @@ List I visited
 Belkal
 Kudlu
 
+Kodi
+Malpe 
+Kapu
+Manipal
